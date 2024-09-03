@@ -7,6 +7,6 @@ I also used to play cricket previously, played in an academy named UBL
 
 
 
-![This is my favourite character](https://github.com/user-attachments/assets/726b2dd3-e778-4322-b61a-1f96937d7a5d)
+![ This is my favourite character ](https://github.com/user-attachments/assets/726b2dd3-e778-4322-b61a-1f96937d7a5d)
 
 
