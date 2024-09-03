@@ -6,5 +6,7 @@ I really love to play Football
 I also used to play cricket previously, played in an academy named UBL
 I really love to play video games
 Valorant is one of those games that I usually play
-MY role is to initiate and provide information to my team so it gets easy for the,
+MY role is to initiate and provide information to my team
+so it gets easy for my team to win matches
+
 
